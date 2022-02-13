@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on definitely flutter and web programming
 - 📫 You can reach me in instagram:mertcannkaleli
 
-- Köpek gibi çalışıcaz 
+- Çalış, çalış, çalış
 <!---
 Gel hele gel
 --->
